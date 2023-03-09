@@ -1,1 +1,1 @@
-hi you found me and my little items i stored shh keep this hidden
+hi this is my page full of stuff spead the word or keep them for yourself and be cool
